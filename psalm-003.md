@@ -2,13 +2,13 @@
 
 *A morning Psalm*
 
-Oh Lord, how many are my **foes**  
-in this weak state of flesh and **blood**;  
-my peace they daily discompose  
-but my defence and hope is **God**.
+Lord, how my rivals multiply  
+in this weak state of flesh and blood;  
+my worries swell up to the sky  
+but God will save me from the flood.
 
 Tired with the burdens of the day  
-to You I **poured out** all my fear;  
+I knelt, confessing all my fear;  
 You heard when I began to pray  
 and Your almighty help was near.
 
