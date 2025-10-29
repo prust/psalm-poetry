@@ -2,7 +2,7 @@
 
 *The way and end of the righteous and the wicked*
 
-Blessed is the one who **shuns** the place  
+How blessed, one who avoids the place  
 where sinners love to meet;  
 who fears to walk their wicked ways  
 and hates the mocker's seat.
@@ -13,7 +13,7 @@ by day they read or hear the word
 and meditate by night.
 
 Green as the leaf and ever fair  
-shall their **endeavors** shine,  
+shall their ambitions shine,  
 while fruits of holiness appear  
 like clusters on the vine.
 
