@@ -1,6 +1,6 @@
 # Psalm 20
 
-*Prayer and hope of victory. For a day of prayer in time of war*
+*For a day of prayer in time of war*
 
 Now may the God of power and grace  
 attend His people's humble cry  
