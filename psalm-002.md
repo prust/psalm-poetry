@@ -12,15 +12,15 @@ laughs at their rage below;
 He speaks with vengeance in His eyes  
 and shatters sword and bow.
 
-"I call Him my Eternal Son  
+“I call Him my Eternal Son  
 and raise Him from the dead;  
 I make my holy hill His throne  
-and wide His kingdom spread.
+and wide His kingdom spread.”
 
-"Ask me, my Son, and then enjoy  
+“Ask me, my Son, and then enjoy  
 the farthest pagan lands;  
 Your rod of iron will destroy  
-the rebel that withstands."
+the rebel that withstands.”
 
 Be wise, you rulers of the earth  
 obey the anointed Lord;  
